@@ -1,1 +1,1 @@
-Engineer, transforming raw ideas into intuitive digital products.
+Debugging life, one line at a time.
